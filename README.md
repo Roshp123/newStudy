@@ -1,2 +1,2 @@
 # newStudy
-Learning with Abhinav ji
+Learning with Abhinav bro
